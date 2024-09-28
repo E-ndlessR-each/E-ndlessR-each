@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @E-ndlessR-each
-- 👀 I’m interested in traking,singing,market research,entrepreneurship & infinite....
+- 👀 I’m interested in traking,singing,market research,entrepreneurship & infinite more things ....
 - 🌱 I’m currently learning DATA SCIENCE & DATA ANALYTICS and some more thing which our helping me in my career ..
 - 💞️ I’m looking to collaborate with startups & business in any field 
 - 📫 How to reach me ... by the help of github 
